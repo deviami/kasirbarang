@@ -1,0 +1,2 @@
+# kasirbarang
+kasir
